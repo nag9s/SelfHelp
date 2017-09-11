@@ -24,7 +24,7 @@ Obviously, doing something below average is never the goal. But you have to give
 
 But the alternative is even worse: if you don’t have a schedule forcing you to deliver, then it’s really easy to avoid doing the work at all. The only way to be consistent enough to make a masterpiece is to give yourself permission to create junk along the way.
 
-The Schedule is the System
+#### The Schedule is the System
 
 The schedule is the system that makes your goals a reality. If you don’t set a schedule for yourself, then your only option is to rely on motivation which is not stable.
 
