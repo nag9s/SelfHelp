@@ -12,21 +12,9 @@ Daily Routines: The Power of the Schedule
 
 William James, the famous psychologist, is noted for saying that habits and schedules are important because they “free our minds to advance to really interesting fields of action.”
 
-
-
-
-
-
-
 An article in The Guardian agreed by saying, “If you waste resources trying to decide when or where to work, you'll impede your capacity to do the work.”
 
-
-
-
-
-
-
- if you’re serious about creating something compelling, you need to stop waiting for motivation and inspiration to strike you and simply set a schedule for doing work on a consistent basis.
+if you’re serious about creating something compelling, you need to stop waiting for motivation and inspiration to strike you and simply set a schedule for doing work on a consistent basis.
 
 Permission to Create Junk
 
