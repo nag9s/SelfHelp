@@ -28,7 +28,7 @@ Being a pro is about having the discipline to commit to what is important to you
 
 Becoming a pro doesn't mean you're a workaholic. It means that you’re good at making time for what matters to you — especially when you don't feel like it — instead of playing the role of the victim and letting life happen to you.
 
-How to Become a Pro
+#### How to Become a Pro
 
 Going about your work like a pro isn't easy, but it's also not as complicated or difficult as you might think. There are three steps.
 
