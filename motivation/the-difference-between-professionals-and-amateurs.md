@@ -14,23 +14,9 @@ We have goals that we would like to achieve and dreams that we would like to ful
 
 I can guarantee that if you set a schedule for any task and start sticking to it, there will be days when you feel like quitting.
 
-When you start a business, there will be days when you don’t feel like showing up. When you're at the gym, there will be sets that you don’t feel like finishing. When it's time to write, there will be reports that you don’t feel like typing. 
+When you start a business, there will be days when you don’t feel like showing up. When you're at the gym, there will be sets that you don’t feel like finishing. When it's time to write, there will be reports that you don’t feel like typing.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-    But stepping up when it's annoying or painful or draining to do so, that’s what makes you a pro.
+But stepping up when it's annoying or painful or draining to do so, that’s what makes you a pro.
 
 You'll Never Regret Starting Important Work
 
