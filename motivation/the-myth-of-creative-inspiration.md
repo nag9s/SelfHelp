@@ -20,26 +20,17 @@ Permission to Create Junk
 
 You can’t selectively choose your best moments and only work on the days when you have great ideas. The only way to unveil the great ideas inside of you is to go through a volume of work, put in your repetitions, and show up over and over again.
 
-
-
-
-
-
-
 Obviously, doing something below average is never the goal. But you have to give yourself permission to grind through the occasional days of below average work because it’s the price you have to pay to get to excellent work.
-
-
-
-
-
-
 
 But the alternative is even worse: if you don’t have a schedule forcing you to deliver, then it’s really easy to avoid doing the work at all. The only way to be consistent enough to make a masterpiece is to give yourself permission to create junk along the way.
 
 The Schedule is the System
 
-```
  The schedule is the system that makes your goals a reality. If you don’t set a schedule for yourself, then your only option is to rely on motivation which is not stable.
+
+
+
+
 
 
 
@@ -47,7 +38,15 @@ If your workout doesn’t have a time when it usually occurs, then each day you�
 
 
 
-If your business doesn’t have a system for marketing, then you’ll show up at work crossing your fingers that you'll find a way to get the word out \\(in addition to everything else you have to do\\).
+
+
+
+
+If your business doesn’t have a system for marketing, then you’ll show up at work crossing your fingers that you'll find a way to get the word out \\\(in addition to everything else you have to do\\\).
+
+
+
+
 
 
 
@@ -55,8 +54,11 @@ If you don’t have a time block to write every week, then you’ll find yoursel
 
 
 
+
+
+
+
 Stop waiting for motivation or inspiration to strike you and set a schedule for your habits. This is the difference between professionals and amateurs. Professionals set a schedule and stick to it. Amateurs wait until they feel inspired or motivated.
-```
 
 
 
