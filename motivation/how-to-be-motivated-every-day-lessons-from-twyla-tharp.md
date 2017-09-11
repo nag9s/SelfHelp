@@ -24,27 +24,13 @@ And this, my friends, is where Twyla Tharp's morning ritual comes back into the 
 
 The power of a ritual, or what I like to call a pre-game routine, is that it provides a mindless way to initiate your behavior. It makes starting your habits easier and that means following through on a consistent basis is easier.
 
-
-
-
-
-
-
-In other words, getting started with a simple ritual like putting on a helmet or checking the air in the bike tires makes it easier to follow through on the bigger behavior \\\(making the commute\\\). If you focus on the ritual, the next step follows more automatically.
-
-
-
-
-
-
+In other words, getting started with a simple ritual like putting on a helmet or checking the air in the bike tires makes it easier to follow through on the bigger behavior \\(making the commute\\). If you focus on the ritual, the next step follows more automatically.
 
 The key to any good ritual is that it removes the need to make a decision: What should I do first? When should I do this? How should I do this? Most people never get moving because they can't decide how to get started. Having a ritual takes that burden off your shoulders.
 
 #### The Idea in Practice
 
-```
 Here are some other examples of how you can apply ritual and routine to your habits and behaviors:
-```
 
 1. Exercise more consistently: Use the same warm up routine in the gym
 2. Become more creative: Follow a creative ritual before you start writing or painting or singing
