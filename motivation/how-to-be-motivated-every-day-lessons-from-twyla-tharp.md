@@ -10,59 +10,35 @@ Let's talk about what makes Tharp's morning ritual so important and how we can u
 
 the surprising thing about motivation: it often comes after starting a new behavior, not before. Getting started is a form of active inspiration that naturally produces momentum.
 
-
-
-
-
-
-
 You have probably experienced this phenomenon before. For example, going for a run may seem overwhelming or exhausting just to think about before you begin, but if you can muster up the energy to start jogging, you'll often find that you become more motivated to finish as you go.
-
-
-
-
-
-
 
 In other words, it's easier to finish the run than it was to start it in the first place.
 
-
-
-
-
-
-
 Newton's First Law applied to habit formation: objects in motion tend to stay in motion. And that means getting started is the hardest part.
 
-
-
-
-
-
-
 I often find this to be true with my articles. Once I begin writing, it's much easier for me to power through and finish. However, if I'm staring at a blank page, it can seem overwhelming and taxing to take the first step.
-
-
-
-
-
-
 
 And this, my friends, is where Twyla Tharp's morning ritual comes back into the picture.
 
 #### Rituals Are an On Ramp for Your Behavior
 
-```
 The power of a ritual, or what I like to call a pre-game routine, is that it provides a mindless way to initiate your behavior. It makes starting your habits easier and that means following through on a consistent basis is easier.
 
 
 
-In other words, getting started with a simple ritual like putting on a helmet or checking the air in the bike tires makes it easier to follow through on the bigger behavior \\(making the commute\\). If you focus on the ritual, the next step follows more automatically.
+
+
+
+
+In other words, getting started with a simple ritual like putting on a helmet or checking the air in the bike tires makes it easier to follow through on the bigger behavior \\\(making the commute\\\). If you focus on the ritual, the next step follows more automatically.
+
+
+
+
 
 
 
 The key to any good ritual is that it removes the need to make a decision: What should I do first? When should I do this? How should I do this? Most people never get moving because they can't decide how to get started. Having a ritual takes that burden off your shoulders.
-```
 
 #### The Idea in Practice
 
