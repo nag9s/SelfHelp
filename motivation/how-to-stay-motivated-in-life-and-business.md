@@ -28,15 +28,13 @@ Martin’s comedy career was a perfect example of what The Goldilocks Rule looks
 
 If you want to learn how to stay motivated to reach your goals, then there is a second piece of the motivation puzzle that is crucial to understand. It has to do with achieving that perfect blend of hard work and happiness.
 
-
-
 Working on challenges of an optimal level of difficulty has been found to not only be motivating, but also to be a major source of happiness. As psychologist Gilbert Brim put it, “`One of the important sources of human happiness is working on tasks at a suitable level of difficulty, neither too hard nor too easy.”`
 
-This blend of happiness and peak performance is sometimes referred to as flow, which is what athletes and performers experience when they are “in the zone.”` Flow is the mental state you experience when you are so focused on the task at hand that the rest of the world fades away.`
+This blend of happiness and peak performance is sometimes referred to as flow, which is what athletes and performers experience when they are “in the zone.”`Flow is the mental state you experience when you are so focused on the task at hand that the rest of the world fades away.`
 
 In order to reach this state of peak performance, however, you not only need to work on challenges at the right degree of difficulty, but also measure your immediate progress. As psychologist Jonathan Haidt explains, one of the keys to reaching a flow state is that “you get immediate feedback about how you are doing at each step.”
 
-Seeing yourself make progress_in the moment_is incredibly motivating. Steve Martin would tell a joke and immediately know if it worked based on the laughter of the crowd. Imagine how addicting it would be to create a roar of laughter.The rush of positive feedback Martin experienced from one great joke would probably be enough to overpower his fears and inspire him to work for weeks.
+`Seeing yourself make progress_in the moment_is incredibly motivating. Steve Martin would tell a joke and immediately know if it worked based on the laughter of the crowd. Imagine how addicting it would be to create a roar of laughter.The rush of positive feedback Martin experienced from one great joke would probably be enough to overpower his fears and inspire him to work for weeks.`
 
 In other areas of life, measurement looks different but is just as critical for achieving a blend of motivation and happiness. In tennis, you get immediate feedback based on whether or not you win the point. Regardless of how it is measured, the human brain needs some way to visualize our progress if we are to maintain motivation. We need to be able to see our wins.
 
