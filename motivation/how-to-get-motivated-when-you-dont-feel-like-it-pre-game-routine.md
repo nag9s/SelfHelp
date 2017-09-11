@@ -34,106 +34,19 @@ For example…
 
 * My writing routine starts by getting a glass of water. So easy, I can’t say no.
 * My weightlifting routine starts by putting on my lifting shoes. So easy, I can’t say no.
-* My pitching routine started by picking up a baseball and my glove. So easy, I couldn’t say no. \\\\\(Also, my coach would have yelled at me.\\\\\)
+* My pitching routine started by picking up a baseball and my glove. So easy, I couldn’t say no. \\\(Also, my coach would have yelled at me.\\\)
 
+> motivation often comes after starting. That's why your pre–game routine needs to be incredibly easy to start.
 
+**Step 2: Your routine should get you moving towards the end goal.**
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-motivation often comes after starting. That's why your pre–game routine needs to be incredibly easy to start.
-
-Step 2: Your routine should get you moving towards the end goal.
-
-```
 Most of the time, your routine should include physical movement. It's hard to think yourself into getting motivated.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 Here's why…
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 What is your body language like when you're feeling unmotivated or lacking energy?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 Answer: You're not moving very much. Maybe you're slumped over like a blob, slowly melting into the couch. This lack of physical movement is directly linked to a lack of mental energy.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 Related: physical movement doesn't have to mean exercise. For example, if your goal is to write, then your routine should bring you closer to the physical act of writing.
 
@@ -151,8 +64,23 @@ Related: physical movement doesn't have to mean exercise. For example, if your g
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 While your routine should be as easy as possible to start, it should gradually transition into more and more physical movement. Your mind and your motivation will follow your physical movement.
-```
 
 Step 3: You need to follow the same pattern every single time.
 
