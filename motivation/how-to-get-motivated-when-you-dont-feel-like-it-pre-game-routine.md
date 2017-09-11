@@ -52,103 +52,13 @@ Related: physical movement doesn't have to mean exercise. For example, if your g
 
 While your routine should be as easy as possible to start, it should gradually transition into more and more physical movement. Your mind and your motivation will follow your physical movement.
 
-Step 3: You need to follow the same pattern every single time.
+**Step 3: You need to follow the same pattern every single time.**
 
-The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do \\\\\_\\\\\_\\\\\_.”
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do \\\_\\\_\\\_.”
 
 Eventually, this routine becomes so tied to your performance that by simply doing the routine, you are pulled into a mental state that is primed to perform. You don't need motivation, you just need to start your routine.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 If you remember the article on the 3 R’s of Habit Change, then you may realize that your pre–game routine is basically creating a “reminder” for yourself. Your pre–game routine is the trigger that kickstarts your habit, even if you’re not motivated to do it.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 This is important because when you don't feel motivated, it's often too much work to figure out what you should do next. When faced with another decision, you will often decide to just quit. However, the pre–game routine solves that problem because you know exactly what to do next. There's no debating or decision making. You just follow the pattern.
 
