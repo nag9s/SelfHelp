@@ -20,9 +20,13 @@ Compare these experiences to playing tennis against someone who is your equal. A
 
 Tasks that are significantly below your current abilities are boring. Tasks that are significantly beyond your current abilities are discouraging. But tasks that are right on the border of success and failure are incredibly motivating to our human brains. We want nothing more than to master a skill just beyond our current horizon.
 
-
-
 We can call this phenomenon**The Goldilocks Rule**.`The Goldilocks Rule states that humans experience peak motivation when working on tasks that are right on the edge of their current abilities. Not too hard. Not too easy. Just right.`
 
 Martin’s comedy career was a perfect example of what The Goldilocks Rule looks like in the real world. Each year, the length of his comedy routines expanded, but only by a minute or two. He was always adding new material, but he also kept a few jokes that were guaranteed to get laughs. There were just enough victories to keep him motivated and just enough mistakes to keep him working hard.
+
+
+
+### Measure Your Progress
+
+If you want to learn how to stay motivated to reach your goals, then there is a second piece of the motivation puzzle that is crucial to understand. It has to do with achieving that perfect blend of hard work and happiness.
 
