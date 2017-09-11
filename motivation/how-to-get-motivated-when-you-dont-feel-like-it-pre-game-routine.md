@@ -62,8 +62,15 @@ This is important because when you don't feel motivated, it's often too much wor
 
 #### How to Get Motivated: Make Excellence a Routine
 
-```
 If you’ve taught yourself to believe certain limitations, then you can also teach yourself to break through them.
+
+
+
+
+
+
+
+
 
 
 
@@ -79,7 +86,23 @@ The patterns that you repeat on a daily basis will eventually form the identity 
 
 
 
+
+
+
+
+
+
+
+
  why it’s so critical to do your pre–game routine every time, not just when you’re struggling with a lack of motivation.
+
+
+
+
+
+
+
+
 
 
 
@@ -95,6 +118,14 @@ These small behaviors reinforce your good habits and the feelings that come with
 
 
 
+
+
+
+
+
+
+
+
 If you only work when you feel motivated, then you’ll never be consistent enough to become a pro
 
 
@@ -103,8 +134,15 @@ If you only work when you feel motivated, then you’ll never be consistent enou
 
 
 
+
+
+
+
+
+
+
+
 But if you build small routines and patterns that help you overcome the daily battles, then you’ll continue the slow march towards greatness even when it gets tough.
-```
 
 
 
