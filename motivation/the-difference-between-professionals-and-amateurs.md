@@ -10,11 +10,10 @@ Approaching your goals — whatever they are — with the attitude of a professi
 
 The simple fact of the matter is that most of the time we are inconsistent.
 
- We have goals that we would like to achieve and dreams that we would like to fulfill, but we only work towards them occasionally; when we feel inspired or motivated or when life allows us to do so. It's just easier that way.
+We have goals that we would like to achieve and dreams that we would like to fulfill, but we only work towards them occasionally; when we feel inspired or motivated or when life allows us to do so. It's just easier that way.
 
 I can guarantee that if you set a schedule for any task and start sticking to it, there will be days when you feel like quitting.
 
-```
 When you start a business, there will be days when you don’t feel like showing up. When you're at the gym, there will be sets that you don’t feel like finishing. When it's time to write, there will be reports that you don’t feel like typing. 
 
 
@@ -23,8 +22,15 @@ When you start a business, there will be days when you don’t feel like showing
 
 
 
+
+
+
+
+
+
+
+
     But stepping up when it's annoying or painful or draining to do so, that’s what makes you a pro.
-```
 
 You'll Never Regret Starting Important Work
 
