@@ -16,7 +16,7 @@ An article in The Guardian agreed by saying, “If you waste resources trying to
 
 if you’re serious about creating something compelling, you need to stop waiting for motivation and inspiration to strike you and simply set a schedule for doing work on a consistent basis.
 
-Permission to Create Junk
+#### Permission to Create Junk
 
 You can’t selectively choose your best moments and only work on the days when you have great ideas. The only way to unveil the great ideas inside of you is to go through a volume of work, put in your repetitions, and show up over and over again.
 
