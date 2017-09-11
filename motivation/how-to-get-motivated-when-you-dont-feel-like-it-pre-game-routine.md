@@ -60,7 +60,7 @@ If you remember the article on the 3 R’s of Habit Change, then you may realize
 
 This is important because when you don't feel motivated, it's often too much work to figure out what you should do next. When faced with another decision, you will often decide to just quit. However, the pre–game routine solves that problem because you know exactly what to do next. There's no debating or decision making. You just follow the pattern.
 
-How to Get Motivated: Make Excellence a Routine
+#### How to Get Motivated: Make Excellence a Routine
 
 ```
 If you’ve taught yourself to believe certain limitations, then you can also teach yourself to break through them.
