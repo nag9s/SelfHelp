@@ -22,26 +22,17 @@ You'll Never Regret Starting Important Work
 
 “Professionals work harder than everyone else and that's why they're great.” Actually, that's not it at all.
 
-
-
-
-
-
-
 Being a pro is about having the discipline to commit to what is important to you instead of merely saying something is important to you. It's about starting when you feel like stopping, not because you want to work more, but because your goal is important enough to you that you don't simply work on it when it's convenient. Becoming a pro is about making your priorities a reality.
-
-
-
-
-
-
 
 Becoming a pro doesn't mean you're a workaholic. It means that you’re good at making time for what matters to you — especially when you don't feel like it — instead of playing the role of the victim and letting life happen to you.
 
 How to Become a Pro
 
-```
 Going about your work like a pro isn't easy, but it's also not as complicated or difficult as you might think. There are three steps.
+
+
+
+
 
 
 
@@ -49,7 +40,15 @@ Going about your work like a pro isn't easy, but it's also not as complicated or
 
 
 
+
+
+
+
         If you know what you want, then getting it is much easier. This sounds simple, but in my experience even people who are smart, creative, and talented rarely know exactly what they are working for and why.
+
+
+
+
 
 
 
@@ -57,7 +56,15 @@ Going about your work like a pro isn't easy, but it's also not as complicated or
 
 
 
+
+
+
+
         Once you know what you want, set a schedule for actually doing it.
+
+
+
+
 
 
 
@@ -65,7 +72,15 @@ Going about your work like a pro isn't easy, but it's also not as complicated or
 
 
 
+
+
+
+
     3. Stick to your schedule for one week.
+
+
+
+
 
 
 
@@ -73,7 +88,15 @@ Going about your work like a pro isn't easy, but it's also not as complicated or
 
 
 
+
+
+
+
         Setting a schedule doesn't make you a professional, following it does. Don’t be a writer, be writing.
+
+
+
+
 
 
 
@@ -81,12 +104,19 @@ Going about your work like a pro isn't easy, but it's also not as complicated or
 
 
 
+
+
+
+
     set a schedule based on actions you can do, not results that you want
 
 
 
+
+
+
+
     stick to the schedule consistently
-```
 
 Professionals stick to the schedule, amateurs let life get in the way. Professionals know what is important to them and work towards it with purpose, amateurs get pulled off course by the urgencies of life.
 
