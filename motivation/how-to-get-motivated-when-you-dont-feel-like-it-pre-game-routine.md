@@ -10,31 +10,55 @@
 
 #### How You Can Use a Pre–Game Routine to Get Motivated
 
-    a pre–game routine is that allowed to perform well, regardless of whether  motivated or not.
+a pre–game routine is that allowed to perform well, regardless of whether  motivated or not.
 
 
 
-    While this routine physically warmed me up to play, it also — and perhaps more importantly — put me in the correct mental state to compete at a high level. Even if I wasn’t feeling up for the game at the beginning, by the time I finished my pre–game routine, I was in “game mode.”
 
 
 
-     My pre–game routine started a cascade of internal events that pulled me into the right frame of mind and made it more likely that I would succeed.
+
+While this routine physically warmed me up to play, it also — and perhaps more importantly — put me in the correct mental state to compete at a high level. Even if I wasn’t feeling up for the game at the beginning, by the time I finished my pre–game routine, I was in “game mode.”
 
 
 
-    Imagine if you had a routine that could pull you into “exercise mode” or “work mode”, no matter how little motivation you had at the start.
 
 
 
-    Do you think these people always feel motivated? No way. There are some days when the most talented people in the world wake up feeling like sluggish lard bombs.
+
+ My pre–game routine started a cascade of internal events that pulled me into the right frame of mind and made it more likely that I would succeed.
 
 
 
-    But they use their pre–game routines to pull them into the right mental state, regardless of how they feel. You can use this same process to overcome your motivation threshold and consistently exercise, study, write, speak, or perform any other task that is important to you.
 
 
 
-    \*\*Here’s how to do it…
+
+Imagine if you had a routine that could pull you into “exercise mode” or “work mode”, no matter how little motivation you had at the start.
+
+
+
+
+
+
+
+Do you think these people always feel motivated? No way. There are some days when the most talented people in the world wake up feeling like sluggish lard bombs.
+
+
+
+
+
+
+
+But they use their pre–game routines to pull them into the right mental state, regardless of how they feel. You can use this same process to overcome your motivation threshold and consistently exercise, study, write, speak, or perform any other task that is important to you.
+
+
+
+
+
+
+
+\\*\\*Here’s how to do it…
 
 \*\*
 
