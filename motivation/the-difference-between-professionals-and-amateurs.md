@@ -32,7 +32,7 @@ Becoming a pro doesn't mean you're a workaholic. It means that you’re good at 
 
 Going about your work like a pro isn't easy, but it's also not as complicated or difficult as you might think. There are three steps.
 
-1. Decide what you want to be good at.
+1. Decide what you want to be good at. Purpose is everything
 
    If you know what you want, then getting it is much easier. This sounds simple, but in my experience even people who are smart, creative, and talented rarely know exactly what they are working for and why.
 
@@ -42,13 +42,13 @@ Once you know what you want, set a schedule for actually doing it.
 
 Note: Don't make the same mistake I have made, which is setting a schedule based on results. Don't map out how much weight you want to lose each week or how much money you want to make. “Lose 5 pounds” is not an action you can perform. “Do three sets of squats” is an action you can perform.
 
-3. Stick to your schedule for one week.
+1. Stick to your schedule for one week.
 
 Stop thinking about how hard it will be to follow a schedule for a month or a year. Just follow it for this week. For the next 7 days, don't let distractions get in the way.
 
 Setting a schedule doesn't make you a professional, following it does. Don’t be a writer, be writing.
 
-Purpose is everything
+
 
 set a schedule based on actions you can do, not results that you want
 
