@@ -10,7 +10,7 @@ Why do we stay motivated to reach some goals, but not others? Why do we say we w
 
 the best way to stay motivated is to work on tasks of “just manageable difficulty.”
 
-### The Goldilocks Rule
+### The Goldilocks Rule {#rule}
 
 `Human beings love challenges, but only if they are within the optimal zone of difficulty.`
 
@@ -38,8 +38,6 @@ In order to reach this state of peak performance, however, you not only need to 
 
 In other areas of life, measurement looks different but is just as critical for achieving a blend of motivation and happiness. In tennis, you get immediate feedback based on whether or not you win the point. Regardless of how it is measured, the human brain needs some way to visualize our progress if we are to maintain motivation. We need to be able to see our wins.
 
-
-
 ### Two Steps to Motivation
 
 If we want to break down the mystery of how to stay motivated for the long-term, we could simply say:
@@ -48,6 +46,4 @@ If we want to break down the mystery of how to stay motivated for the long-term,
 2. Measure your progress and receive immediate feedback whenever possible.
 
 Wanting to improve your life is easy. Sticking with it is a different story. If you want to stay motivated for good, then start with a challenge that is just manageable, measure your progress, and repeat the process.
-
-
 
