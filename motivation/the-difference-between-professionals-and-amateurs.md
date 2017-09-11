@@ -8,7 +8,7 @@ The ability to show up everyday, stick to the schedule, and do the work — espe
 
 Approaching your goals — whatever they are — with the attitude of a professional isn't easy. In fact, being a pro is painful.
 
-The simple fact of the matter is that most of the time we are inconsistent.
+                 The simple fact of the matter is that most of the time we are inconsistent.
 
 We have goals that we would like to achieve and dreams that we would like to fulfill, but we only work towards them occasionally; when we feel inspired or motivated or when life allows us to do so. It's just easier that way.
 
