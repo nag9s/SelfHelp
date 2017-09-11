@@ -8,7 +8,7 @@ He would go to his job from 8:30 AM to 2:30 PM, eat lunch and then take a long n
 
 The work of top creatives isn’t dependent upon motivation or inspiration, but rather it follows a consistent pattern and routine
 
-Daily Routines: The Power of the Schedule
+#### Daily Routines: The Power of the Schedule
 
 William James, the famous psychologist, is noted for saying that habits and schedules are important because they “free our minds to advance to really interesting fields of action.”
 
@@ -26,39 +26,13 @@ But the alternative is even worse: if you don’t have a schedule forcing you to
 
 The Schedule is the System
 
- The schedule is the system that makes your goals a reality. If you don’t set a schedule for yourself, then your only option is to rely on motivation which is not stable.
-
-
-
-
-
-
+The schedule is the system that makes your goals a reality. If you don’t set a schedule for yourself, then your only option is to rely on motivation which is not stable.
 
 If your workout doesn’t have a time when it usually occurs, then each day you’ll wake up thinking, “I hope I feel motivated to exercise today.”
 
-
-
-
-
-
-
-If your business doesn’t have a system for marketing, then you’ll show up at work crossing your fingers that you'll find a way to get the word out \\\(in addition to everything else you have to do\\\).
-
-
-
-
-
-
+If your business doesn’t have a system for marketing, then you’ll show up at work crossing your fingers that you'll find a way to get the word out \\(in addition to everything else you have to do\\).
 
 If you don’t have a time block to write every week, then you’ll find yourself saying things like, “I just need to find the willpower to do it.”
 
-
-
-
-
-
-
 Stop waiting for motivation or inspiration to strike you and set a schedule for your habits. This is the difference between professionals and amateurs. Professionals set a schedule and stick to it. Amateurs wait until they feel inspired or motivated.
-
-
 
