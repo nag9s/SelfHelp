@@ -52,7 +52,7 @@ While your routine should be as easy as possible to start, it should gradually t
 
 **Step 3: You need to follow the same pattern every single time.**
 
-The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do --------\_.”
+> The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do --------\_.”
 
 Eventually, this routine becomes so tied to your performance that by simply doing the routine, you are pulled into a mental state that is primed to perform. You don't need motivation, you just need to start your routine.
 
