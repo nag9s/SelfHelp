@@ -48,8 +48,6 @@ Stop thinking about how hard it will be to follow a schedule for a month or a ye
 
 Setting a schedule doesn't make you a professional, following it does. Don’t be a writer, be writing.
 
-set a schedule based on actions you can do, not results that you want
-
 
 
 Professionals stick to the schedule, amateurs let life get in the way. Professionals know what is important to them and work towards it with purpose, amateurs get pulled off course by the urgencies of life.
