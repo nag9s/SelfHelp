@@ -6,4 +6,5 @@
   * [How to Be Motivated Every Day: Lessons from Twyla Tharp](motivation/how-to-be-motivated-every-day-lessons-from-twyla-tharp.md)
   * [Martha Graham on the Hidden Danger of Comparing Yourself to Others](motivation/martha-graham-on-the-hidden-danger-of-comparing-yourself-to-others.md)
   * [How to Get Motivated When You Don't Feel Like It \(Pre Game Routine\)](motivation/how-to-get-motivated-when-you-dont-feel-like-it-pre-game-routine.md)
+  * [Rome Wasn't Built in a Day, But They Were Laying Bricks Every Hour](motivation/rome-wasnt-built-in-a-day-but-they-were-laying-bricks-every-hour.md)
 
