@@ -18,8 +18,11 @@ if you’re serious about creating something compelling, you need to stop waitin
 
 Permission to Create Junk
 
-```
 You can’t selectively choose your best moments and only work on the days when you have great ideas. The only way to unveil the great ideas inside of you is to go through a volume of work, put in your repetitions, and show up over and over again.
+
+
+
+
 
 
 
@@ -27,8 +30,11 @@ Obviously, doing something below average is never the goal. But you have to give
 
 
 
+
+
+
+
 But the alternative is even worse: if you don’t have a schedule forcing you to deliver, then it’s really easy to avoid doing the work at all. The only way to be consistent enough to make a masterpiece is to give yourself permission to create junk along the way.
-```
 
 The Schedule is the System
 
