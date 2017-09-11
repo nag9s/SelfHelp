@@ -8,8 +8,11 @@ Let's talk about what makes Tharp's morning ritual so important and how we can u
 
 #### The Surprising Thing About Motivation
 
-```
 the surprising thing about motivation: it often comes after starting a new behavior, not before. Getting started is a form of active inspiration that naturally produces momentum.
+
+
+
+
 
 
 
@@ -17,7 +20,15 @@ You have probably experienced this phenomenon before. For example, going for a r
 
 
 
+
+
+
+
 In other words, it's easier to finish the run than it was to start it in the first place.
+
+
+
+
 
 
 
@@ -25,12 +36,19 @@ Newton's First Law applied to habit formation: objects in motion tend to stay in
 
 
 
+
+
+
+
 I often find this to be true with my articles. Once I begin writing, it's much easier for me to power through and finish. However, if I'm staring at a blank page, it can seem overwhelming and taxing to take the first step.
 
 
 
+
+
+
+
 And this, my friends, is where Twyla Tharp's morning ritual comes back into the picture.
-```
 
 #### Rituals Are an On Ramp for Your Behavior
 
@@ -48,7 +66,9 @@ The key to any good ritual is that it removes the need to make a decision: What 
 
 #### The Idea in Practice
 
-    Here are some other examples of how you can apply ritual and routine to your habits and behaviors:
+```
+Here are some other examples of how you can apply ritual and routine to your habits and behaviors:
+```
 
 1. Exercise more consistently: Use the same warm up routine in the gym
 2. Become more creative: Follow a creative ritual before you start writing or painting or singing
