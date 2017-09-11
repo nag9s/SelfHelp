@@ -4,7 +4,7 @@ It doesn't matter what you are trying to become better at, if you only do the wo
 
 The ability to show up everyday, stick to the schedule, and do the work — especially when you don't feel like it — is so valuable that it is literally all you need to become better 99% of the time.
 
-The Pain of Being A Pro
+#### The Pain of Being A Pro
 
 Approaching your goals — whatever they are — with the attitude of a professional isn't easy. In fact, being a pro is painful.
 
@@ -43,36 +43,6 @@ Note: Don't make the same mistake I have made, which is setting a schedule based
 1. Stick to your schedule for one week.
 
 Stop thinking about how hard it will be to follow a schedule for a month or a year. Just follow it for this week. For the next 7 days, don't let distractions get in the way.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 Setting a schedule doesn't make you a professional, following it does. Don’t be a writer, be writing.
 
