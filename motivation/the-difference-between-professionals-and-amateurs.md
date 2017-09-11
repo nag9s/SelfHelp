@@ -42,17 +42,15 @@ Once you know what you want, set a schedule for actually doing it.
 
 Note: Don't make the same mistake I have made, which is setting a schedule based on results. Don't map out how much weight you want to lose each week or how much money you want to make. “Lose 5 pounds” is not an action you can perform. “Do three sets of squats” is an action you can perform.
 
-1. Stick to your schedule for one week.
+1. Stick to your schedule for one week.stick to the schedule consistently
 
 Stop thinking about how hard it will be to follow a schedule for a month or a year. Just follow it for this week. For the next 7 days, don't let distractions get in the way.
 
 Setting a schedule doesn't make you a professional, following it does. Don’t be a writer, be writing.
 
-
-
 set a schedule based on actions you can do, not results that you want
 
-stick to the schedule consistently
+
 
 Professionals stick to the schedule, amateurs let life get in the way. Professionals know what is important to them and work towards it with purpose, amateurs get pulled off course by the urgencies of life.
 
