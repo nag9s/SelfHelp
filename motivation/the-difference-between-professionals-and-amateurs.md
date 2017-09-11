@@ -20,8 +20,11 @@ But stepping up when it's annoying or painful or draining to do so, that’s wha
 
 You'll Never Regret Starting Important Work
 
-```
 “Professionals work harder than everyone else and that's why they're great.” Actually, that's not it at all.
+
+
+
+
 
 
 
@@ -29,8 +32,11 @@ Being a pro is about having the discipline to commit to what is important to you
 
 
 
+
+
+
+
 Becoming a pro doesn't mean you're a workaholic. It means that you’re good at making time for what matters to you — especially when you don't feel like it — instead of playing the role of the victim and letting life happen to you.
-```
 
 How to Become a Pro
 
