@@ -28,7 +28,7 @@ But they use their pre–game routines to pull them into the right mental state,
 
 #### 3 Steps For Developing Your Routine
 
-    Step 1: A good pre–game routine starts by being so easy that you can’t say no to it. You shouldn’t need motivation to start your pre–game routine.
+Step 1: A good pre–game routine starts by being so easy that you can’t say no to it. You shouldn’t need motivation to start your pre–game routine.
 
 
 
@@ -36,7 +36,6 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        For example…
 
 
 
@@ -44,15 +43,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        My writing routine starts by getting a glass of water. So easy, I can’t say no.
 
+    For example…
 
 
 
 
 
 
-        My weightlifting routine starts by putting on my lifting shoes. So easy, I can’t say no.
 
 
 
@@ -60,15 +58,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        My pitching routine started by picking up a baseball and my glove. So easy, I couldn’t say no. \\\(Also, my coach would have yelled at me.\\\)
 
 
+    My writing routine starts by getting a glass of water. So easy, I can’t say no.
 
 
 
 
 
-        motivation often comes after starting. That's why your pre–game routine needs to be incredibly easy to start.
 
 
 
@@ -76,15 +73,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-    Step 2: Your routine should get you moving towards the end goal.
 
 
 
+    My weightlifting routine starts by putting on my lifting shoes. So easy, I can’t say no.
 
 
 
 
-        Most of the time, your routine should include physical movement. It's hard to think yourself into getting motivated.
 
 
 
@@ -92,15 +88,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        Here's why…
 
 
 
 
+    My pitching routine started by picking up a baseball and my glove. So easy, I couldn’t say no. \\\\(Also, my coach would have yelled at me.\\\\)
 
 
 
-        What is your body language like when you're feeling unmotivated or lacking energy?
 
 
 
@@ -108,15 +103,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        Answer: You're not moving very much. Maybe you're slumped over like a blob, slowly melting into the couch. This lack of physical movement is directly linked to a lack of mental energy.
 
 
 
 
 
+    motivation often comes after starting. That's why your pre–game routine needs to be incredibly easy to start.
 
 
-        Related: physical movement doesn't have to mean exercise. For example, if your goal is to write, then your routine should bring you closer to the physical act of writing.
 
 
 
@@ -124,15 +118,14 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        While your routine should be as easy as possible to start, it should gradually transition into more and more physical movement. Your mind and your motivation will follow your physical movement.
 
 
 
 
 
 
+Step 2: Your routine should get you moving towards the end goal.
 
-    Step 3: You need to follow the same pattern every single time.
 
 
 
@@ -140,7 +133,6 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do \\\_\\\_\\\_.”
 
 
 
@@ -148,7 +140,7 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        Eventually, this routine becomes so tied to your performance that by simply doing the routine, you are pulled into a mental state that is primed to perform. You don't need motivation, you just need to start your routine.
+    Most of the time, your routine should include physical movement. It's hard to think yourself into getting motivated.
 
 
 
@@ -156,7 +148,6 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        If you remember the article on the 3 R’s of Habit Change, then you may realize that your pre–game routine is basically creating a “reminder” for yourself. Your pre–game routine is the trigger that kickstarts your habit, even if you’re not motivated to do it.
 
 
 
@@ -164,31 +155,157 @@ But they use their pre–game routines to pull them into the right mental state,
 
 
 
-        This is important because when you don't feel motivated, it's often too much work to figure out what you should do next. When faced with another decision, you will often decide to just quit. However, the pre–game routine solves that problem because you know exactly what to do next. There's no debating or decision making. You just follow the pattern.
 
+    Here's why…
 
 
 
 
 
+
+
+
+
+
+
+
+
+
+
+    What is your body language like when you're feeling unmotivated or lacking energy?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    Answer: You're not moving very much. Maybe you're slumped over like a blob, slowly melting into the couch. This lack of physical movement is directly linked to a lack of mental energy.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    Related: physical movement doesn't have to mean exercise. For example, if your goal is to write, then your routine should bring you closer to the physical act of writing.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    While your routine should be as easy as possible to start, it should gradually transition into more and more physical movement. Your mind and your motivation will follow your physical movement.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Step 3: You need to follow the same pattern every single time.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    The primary purpose of your pre–game routine is to create a series of events that you always perform before doing a specific task. Your pre–game routine tells your mind, “This is what happens before I do \\\\_\\\\_\\\\_.”
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    Eventually, this routine becomes so tied to your performance that by simply doing the routine, you are pulled into a mental state that is primed to perform. You don't need motivation, you just need to start your routine.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    If you remember the article on the 3 R’s of Habit Change, then you may realize that your pre–game routine is basically creating a “reminder” for yourself. Your pre–game routine is the trigger that kickstarts your habit, even if you’re not motivated to do it.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    This is important because when you don't feel motivated, it's often too much work to figure out what you should do next. When faced with another decision, you will often decide to just quit. However, the pre–game routine solves that problem because you know exactly what to do next. There's no debating or decision making. You just follow the pattern.
 
 How to Get Motivated: Make Excellence a Routine
 
-
-
-
-
-
-
-    If you’ve taught yourself to believe certain limitations, then you can also teach yourself to break through them.
-
-
-
-
-
-
-
-    The patterns that you repeat on a daily basis will eventually form the identity that you believe in and the actions that you take. You can transform your identity and become the type of person who doesn’t need motivation to perform well.
+```
+If you’ve taught yourself to believe certain limitations, then you can also teach yourself to break through them.
 
 
 
@@ -196,7 +313,7 @@ How to Get Motivated: Make Excellence a Routine
 
 
 
-     why it’s so critical to do your pre–game routine every time, not just when you’re struggling with a lack of motivation.
+The patterns that you repeat on a daily basis will eventually form the identity that you believe in and the actions that you take. You can transform your identity and become the type of person who doesn’t need motivation to perform well.
 
 
 
@@ -204,7 +321,7 @@ How to Get Motivated: Make Excellence a Routine
 
 
 
-    These small behaviors reinforce your good habits and the feelings that come with them. Pretty soon, your pre–game routine will not only be a trigger that kickstarts your habit, but also a reminder of what you’re working towards and the type of person you are becoming.
+ why it’s so critical to do your pre–game routine every time, not just when you’re struggling with a lack of motivation.
 
 
 
@@ -212,7 +329,7 @@ How to Get Motivated: Make Excellence a Routine
 
 
 
-    If you only work when you feel motivated, then you’ll never be consistent enough to become a pro
+These small behaviors reinforce your good habits and the feelings that come with them. Pretty soon, your pre–game routine will not only be a trigger that kickstarts your habit, but also a reminder of what you’re working towards and the type of person you are becoming.
 
 
 
@@ -220,7 +337,16 @@ How to Get Motivated: Make Excellence a Routine
 
 
 
-    But if you build small routines and patterns that help you overcome the daily battles, then you’ll continue the slow march towards greatness even when it gets tough.
+If you only work when you feel motivated, then you’ll never be consistent enough to become a pro
+
+
+
+
+
+
+
+But if you build small routines and patterns that help you overcome the daily battles, then you’ll continue the slow march towards greatness even when it gets tough.
+```
 
 
 
