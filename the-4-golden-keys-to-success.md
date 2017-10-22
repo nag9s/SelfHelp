@@ -66,3 +66,47 @@ Well, lets be fair... I know what your thinking, you can't affect how much oppor
 
 
 
+\#2 - REALIZE Opportunities!
+
+This is HUGE!
+
+I can't even count how often in my life my employees were not able to do this.
+
+
+
+All the time I hear people complaining.:
+
+"David, David \(Hi, btw\), I just never got the opportunities!"
+
+"David, David, I'm working ALL day, but I just dont have the luck!"
+
+"David, David, this life is sooooo hard. You cant get things done if you dont know the right people!"
+
+
+
+This is just a few of the things I have to hear nearly daily.
+
+And while all of this is partially right...you cant really affect some things... and you of course have benefits with good contacts...
+
+The same people are running around with their fixed mind... running through the streets, stumbling over a bar of gold and screaming "Ouch! What an aweful day! Always me!!!!!!!"
+
+
+
+This forum is the perfect example. Without trying to offend you right now... there are so many useful tips and methods in this forum. And still, I'm sure many people are reading here all day and are not even realizing they could do exactly the same methods RIGHT NOW and bank.
+
+
+
+The issue is: Opportunities come fast and they're gone even faster.
+
+Meanwhile some of your are going out tonight, sitting in this bar, looking at this 10/10 goddess dancing.
+
+...
+
+...
+
+And whoops, she's gone. Again. And you did nothing. Again.
+
+
+
+And that gets us to...
+
