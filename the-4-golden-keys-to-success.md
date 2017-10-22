@@ -144,3 +144,7 @@ And please, PLEASE! dont let anyone change your mind just because of...
 
 If you see a chance it working, do it! And stop searching and searching but never starting even if you see something that could work!
 
+
+
+
+
