@@ -146,5 +146,63 @@ If you see a chance it working, do it! And stop searching and searching but neve
 
 
 
+## \#4 - BE CONSEQUENT!
 
+The last step... And just as important...
+
+If you make a decision, DO IT!
+
+
+
+So many people fail at this aswell. They write down their goals... see their opportunities... make the decision to tomorrow do - enter your task here-, and then the next day they're too exhausted... too much stress ... not enough sleep... are afraid of failing... are afraid of things not going as fast as they need them to, to be able pay their bills...
+
+So they decide to make their new decision and do it tomorrow! \(See the irony?\)
+
+And tomorrow they decide to change the approach to something else... that they will start tomorrow.
+
+
+
+GENERAL RULE: What you dont do today, you wont do tomorrow. And you know it yourself slothie.
+
+
+
+This is a hard thing sometimes. But the good thing is you can train it.
+
+Being consequent is a fairy easy task. Most of the times its just this split second of a moment that makes you decide.
+
+
+
+Example:
+
+-Throw the pen in my drawer
+
+-Lay it down smoothly so it looks tidy
+
+
+
+The effort is factually seen nearly identical. But your decide to throw it.
+
+This is just an example.
+
+But learn to use these moments for you! Train your consequenzy! Beat your brain in this split second.
+
+You will get used to beating it. And to finally do all the things you decide to do!
+
+
+
+Combine all the 4 keys together... and archieve whatever you want.
+
+
+
+When you know what you REALLY want, see your opportunities, make the decision to use them in that moment and actually DO IT!...
+
+
+
+You are unstoppable.
+
+
+
+Last words:
+
+Please forgive me if I made any mistakes. I did not copy-paste this. I actually wrote this all by hand in one go.
 
