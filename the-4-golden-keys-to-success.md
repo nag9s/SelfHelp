@@ -98,3 +98,63 @@ And whoops, she's gone. Again. And you did nothing. Again.
 
 And that gets us to...
 
+
+
+
+
+## \#3 - MAKE DECISIONS!
+
+When you finally started taking more attention on all the opportunities to get you closer to your goal \(that are laying around everywhere\), you get right to your next issue:
+
+You might be one of the majority of the people in this world that are absolutely incapable of making decisions!
+
+
+
+Most of the people see their opportunity and look at it... just like at the girl...and whoops, it's gone...again.
+
+Thats why you have to TAKE THESE OPPORTUNITIES! 
+
+When you realize an opportunity, make the decision on what you're going to do, and do IT!
+
+Don't ask others to help you. DO IT YOURSELF!
+
+
+
+When I go in restaurants with strangers its nearly ridiculous. You go at a place together. And there are so many of the people doing the same thing over and over:
+
+-Look through the entire card.
+
+-Read everything.
+
+-Go back and forth and back and forth.
+
+At this moment I'm usually like "Wow. That guy is serious about this, he probably knows exactly what he wants.
+
+And then...
+
+-Close the menu, look at me and ask "So....What are you taking?"
+
+-"Oh, yep, I'll take the same!"
+
+
+
+LIKE SERIOUSLY, people in this world can't even decide what they want to EAT!!!
+
+
+
+YOU NEED TO START MAKING DECISIONS FOR YOUR OWN.
+
+Train it!!! See your opportunity... and DECIDE WHAT TO DO.
+
+Think about it well. BUT DECIDE RIGHT AFTER THAT.
+
+
+
+And please, PLEASE! dont let anyone change your mind just because of...
+
+"Well, that obviously is not possible because..."
+
+"Thats a bad idea!"
+
+If you see a chance it working, do it! And stop searching and searching but never starting even if you see something that could work!
+
