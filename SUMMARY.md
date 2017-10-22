@@ -11,4 +11,5 @@
   * [Achieve Your Goals: Research Reveals a Simple Trick That Doubles Your Chances for Success](motivation/achieve-your-goals-research-reveals-a-simple-trick-that-doubles-your-chances-for-success.md)
   * [The Myth of Creative Inspiration](motivation/the-myth-of-creative-inspiration.md)
   * [The Difference Between Professionals and Amateurs](motivation/the-difference-between-professionals-and-amateurs.md)
+* [The 4 Golden Keys To Success](the-4-golden-keys-to-success.md)
 
