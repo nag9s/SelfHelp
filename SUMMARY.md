@@ -15,4 +15,5 @@
 * Urgency
   * [the best ways to create a sense of urgency in yourself](the-best-ways-to-create-a-sense-of-urgency-in-yourself.md)
   * [What do you do to create a sense of urgency while working towards a goal?](what-do-you-do-to-create-a-sense-of-urgency-while-working-towards-a-goal.md)
+  * How can I create a sense of urgency to force myself to be productive?
 
