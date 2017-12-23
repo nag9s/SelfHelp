@@ -12,4 +12,6 @@
   * [The Myth of Creative Inspiration](motivation/the-myth-of-creative-inspiration.md)
   * [The Difference Between Professionals and Amateurs](motivation/the-difference-between-professionals-and-amateurs.md)
 * [The 4 Golden Keys To Success](the-4-golden-keys-to-success.md)
+* Urgency
+  * the best ways to create a sense of urgency in yourself
 
