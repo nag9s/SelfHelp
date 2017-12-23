@@ -2,8 +2,6 @@ believe in something you already believed in \(as you already believed in it is 
 
 [https://www.quora.com/How-can-I-create-a-sense-of-urgency-to-force-myself-to-be-productive](https://www.quora.com/How-can-I-create-a-sense-of-urgency-to-force-myself-to-be-productive)
 
-
-
 Before you write me off as a foul-mouth “know it all,” hear me out. Chances are, you’ve been lied to about how to become more productive.
 
 Here’s the truth: **most productivity advice doesn’t work.**
@@ -78,7 +76,7 @@ And, again, you’re trying to get more done in less time. The “Just Ship It�
 
 ##### **Takeaway:**With everything you do, just get a Version One and send it out in the world. Get feedback. And, if you have the time, perfect it later.
 
-**\#3. Who Are You Hanging Out With?**
+#### **\#3. Who Are You Hanging Out With?**
 
 You’ve heard it before.
 
@@ -95,7 +93,7 @@ You’ve heard it before.
 
 It’s that simple.
 
-**Takeaway:**Surround yourself with the doers, the action-takers, the achievers. Avoid the talkers, the planners, the strategizers.
+##### **Takeaway:**Surround yourself with the doers, the action-takers, the achievers. Avoid the talkers, the planners, the strategizers.
 
 You see, if you want to get more done in less time, tactics won’t work.
 
@@ -105,5 +103,7 @@ It wants comfort; it doesn’t want to work.
 
 You must make yourself believe if you don’t get it done, then there will be serious consequences. Hence, why I opened this answer the way I did…
 
-Your best option is to fuck with yourself into believing these consequences exist.
+##### Your best option is to fuck with yourself into believing these consequences exist.
+
+
 
