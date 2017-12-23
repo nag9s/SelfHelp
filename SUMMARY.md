@@ -14,5 +14,5 @@
 * [The 4 Golden Keys To Success](the-4-golden-keys-to-success.md)
 * Urgency
   * [the best ways to create a sense of urgency in yourself](the-best-ways-to-create-a-sense-of-urgency-in-yourself.md)
-  * What do you do to create a sense of urgency while working towards a goal?
+  * [What do you do to create a sense of urgency while working towards a goal?](what-do-you-do-to-create-a-sense-of-urgency-while-working-towards-a-goal.md)
 
