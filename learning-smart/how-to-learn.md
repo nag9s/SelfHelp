@@ -1,9 +1,7 @@
 **Tips:**
 
 * Take notes
-* Post your questions in the Q 
-  &
-  A section \(see "ask good questions" below\)
+* Post your questions in the Q & A section \(see "ask good questions" below\)
 * Depending on your background, do realise that most exercises will take a lot of effort to complete
 * Be an active learner. Write your own code. Don’t just watch passively
 * Reality check: It takes time to solve difficult problem and often you solve them by parts. That is how you learn to solve problem. The more you do the better you get.
