@@ -17,4 +17,5 @@
   * [What do you do to create a sense of urgency while working towards a goal?](what-do-you-do-to-create-a-sense-of-urgency-while-working-towards-a-goal.md)
   * [How can I create a sense of urgency to force myself to be productive?](how-can-i-create-a-sense-of-urgency-to-force-myself-to-be-productive.md)
 * [Learning SMART](learning-smart.md)
+  * [How To Learn ](learning-smart/how-to-learn.md)
 
