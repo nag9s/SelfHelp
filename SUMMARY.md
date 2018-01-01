@@ -18,4 +18,5 @@
   * [How can I create a sense of urgency to force myself to be productive?](how-can-i-create-a-sense-of-urgency-to-force-myself-to-be-productive.md)
 * [Learning SMART](learning-smart.md)
   * [How To Learn ](learning-smart/how-to-learn.md)
+* [How to Use Discussion Forums](how-to-use-discussion-forums.md)
 
