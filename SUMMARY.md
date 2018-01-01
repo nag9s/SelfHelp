@@ -19,4 +19,5 @@
 * [Learning SMART](learning-smart.md)
   * [How To Learn ](learning-smart/how-to-learn.md)
 * [How to Use Discussion Forums](how-to-use-discussion-forums.md)
+* [Learning to How to learn](learning-to-how-to-learn.md)
 
