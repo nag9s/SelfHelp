@@ -4,11 +4,11 @@ It doesn't matter what you are trying to become better at, if you only do the wo
 
 The ability to show up everyday, stick to the schedule, and do the work — especially when you don't feel like it — is so valuable that it is literally all you need to become better 99% of the time.
 
-#### The Pain of Being A Pro
+## The Pain of Being A Pro
 
 Approaching your goals — whatever they are — with the attitude of a professional isn't easy. In fact, being a pro is painful.
 
-```
+```text
              The simple fact of the matter is that most of the time we are inconsistent.
 ```
 
@@ -20,7 +20,7 @@ When you start a business, there will be days when you don’t feel like showing
 
 But stepping up when it's annoying or painful or draining to do so, that’s what makes you a pro.
 
-#### You'll Never Regret Starting Important Work
+## You'll Never Regret Starting Important Work
 
 “Professionals work harder than everyone else and that's why they're great.” Actually, that's not it at all.
 
@@ -28,7 +28,7 @@ Being a pro is about having the discipline to commit to what is important to you
 
 Becoming a pro doesn't mean you're a workaholic. It means that you’re good at making time for what matters to you — especially when you don't feel like it — instead of playing the role of the victim and letting life happen to you.
 
-#### How to Become a Pro
+## How to Become a Pro
 
 Going about your work like a pro isn't easy, but it's also not as complicated or difficult as you might think. There are three steps.
 

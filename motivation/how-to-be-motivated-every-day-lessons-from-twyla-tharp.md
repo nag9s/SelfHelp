@@ -6,7 +6,7 @@ It's a simple act, but doing it the same way each morning habitualizes it — ma
 
 Let's talk about what makes Tharp's morning ritual so important and how we can use it to master our own habits.
 
-#### The Surprising Thing About Motivation
+## The Surprising Thing About Motivation
 
 the surprising thing about motivation: it often comes after starting a new behavior, not before. Getting started is a form of active inspiration that naturally produces momentum.
 
@@ -20,7 +20,7 @@ I often find this to be true with my articles. Once I begin writing, it's much e
 
 And this, my friends, is where Twyla Tharp's morning ritual comes back into the picture.
 
-#### Rituals Are an On Ramp for Your Behavior
+## Rituals Are an On Ramp for Your Behavior
 
 The power of a ritual, or what I like to call a pre-game routine, is that it provides a mindless way to initiate your behavior. It makes starting your habits easier and that means following through on a consistent basis is easier.
 
@@ -28,7 +28,7 @@ In other words, getting started with a simple ritual like putting on a helmet or
 
 The key to any good ritual is that it removes the need to make a decision: What should I do first? When should I do this? How should I do this? Most people never get moving because they can't decide how to get started. Having a ritual takes that burden off your shoulders.
 
-#### The Idea in Practice
+## The Idea in Practice
 
 Here are some other examples of how you can apply ritual and routine to your habits and behaviors:
 
@@ -38,6 +38,4 @@ Here are some other examples of how you can apply ritual and routine to your hab
 4. Sleep better: Follow a “power down” routine before bed
 
    When you master the ability to mindlessly initiate the tasks that are important to you, it's not necessary to rely on motivation and willpower to make them happen.
-
-
 

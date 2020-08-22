@@ -1,3 +1,5 @@
+# How can I create a sense of urgency to force myself to be productive?
+
 believe in something you already believed in \(as you already believed in it is going to work\) like you believed in blockchain is going to rock, so focus on learning it as you are focusing on techinical part as it is your strength --
 
 [https://www.quora.com/How-can-I-create-a-sense-of-urgency-to-force-myself-to-be-productive](https://www.quora.com/How-can-I-create-a-sense-of-urgency-to-force-myself-to-be-productive)
@@ -12,7 +14,8 @@ And I would know, because I’ve tried all the “productivity hacks” out ther
 
 * **You force yourself to wake up at 5am to complete your complex, drawn-out morning ritual.**
 * **You “chunk” and “time block” and love  your 25-minute Pomodoros.**
-* **You have every To-do app on the market neatly organized on your iPhone and computer in a folder labeled, **
+* **You have every To-do app on the market neatly organized on your iPhone and computer in a folder labeled,** 
+
   **“Productivity.”**
 
 **Yup… these all failed me, too.**
@@ -43,7 +46,7 @@ Instead of a saber-tooth tiger chasing after you, you were faced with a hard dea
 
 **How do we create these same conditions in our everyday lives to get more done than we ever thought possible?**
 
-#### **\#1. Real & Hard Deadlines**
+## **\#1. Real & Hard Deadlines**
 
 Deadlines are the fuel to True Productivity.
 
@@ -53,9 +56,9 @@ For example, I set a deadline to write this Quora answer in 30 minutes. I’m no
 
 On the other hand, I promised my client his email autoresponder would be built by Wednesday at 7pm. You best believe I buckled down and finished the work.
 
-##### **Takeaway:With everything you do, try to set deadlines that involve others. You won’t let them down.**
+### **Takeaway:With everything you do, try to set deadlines that involve others. You won’t let them down.**
 
-#### **\#2. Snap Out of Perfectionism & “Just Ship It.”**
+## **\#2. Snap Out of Perfectionism & “Just Ship It.”**
 
 Your words: “I feel like, if given the assignment to take home, it would have taken me twice the time.”
 
@@ -74,9 +77,9 @@ The result? You got it done.
 
 And, again, you’re trying to get more done in less time. The “Just Ship It” mentality helps you do just that.
 
-##### **Takeaway:**With everything you do, just get a Version One and send it out in the world. Get feedback. And, if you have the time, perfect it later.
+### **Takeaway:**With everything you do, just get a Version One and send it out in the world. Get feedback. And, if you have the time, perfect it later.
 
-#### **\#3. Who Are You Hanging Out With?**
+## **\#3. Who Are You Hanging Out With?**
 
 You’ve heard it before.
 
@@ -86,14 +89,18 @@ You’ve heard it before.
 * If you hang out with fit people, you’ll get fit.
 * If you hang out with people talk and take no action, you won’t get shit done.
 * If you hang out with people who set 
+
   real deadlines
+
    and 
+
   “just ship it,”
+
    you’ll get shit done.
 
 It’s that simple.
 
-##### **Takeaway:**Surround yourself with the doers, the action-takers, the achievers. Avoid the talkers, the planners, the strategizers.
+### **Takeaway:**Surround yourself with the doers, the action-takers, the achievers. Avoid the talkers, the planners, the strategizers.
 
 You see, if you want to get more done in less time, tactics won’t work.
 
@@ -103,7 +110,5 @@ It wants comfort; it doesn’t want to work.
 
 You must make yourself believe if you don’t get it done, then there will be serious consequences. Hence, why I opened this answer the way I did…
 
-##### Your best option is to fuck with yourself into believing these consequences exist.
-
-
+### Your best option is to fuck with yourself into believing these consequences exist.
 

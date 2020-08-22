@@ -8,7 +8,7 @@ He would go to his job from 8:30 AM to 2:30 PM, eat lunch and then take a long n
 
 The work of top creatives isn’t dependent upon motivation or inspiration, but rather it follows a consistent pattern and routine
 
-#### Daily Routines: The Power of the Schedule
+## Daily Routines: The Power of the Schedule
 
 William James, the famous psychologist, is noted for saying that habits and schedules are important because they “free our minds to advance to really interesting fields of action.”
 
@@ -16,7 +16,7 @@ An article in The Guardian agreed by saying, “If you waste resources trying to
 
 if you’re serious about creating something compelling, you need to stop waiting for motivation and inspiration to strike you and simply set a schedule for doing work on a consistent basis.
 
-#### Permission to Create Junk
+## Permission to Create Junk
 
 You can’t selectively choose your best moments and only work on the days when you have great ideas. The only way to unveil the great ideas inside of you is to go through a volume of work, put in your repetitions, and show up over and over again.
 
@@ -24,7 +24,7 @@ Obviously, doing something below average is never the goal. But you have to give
 
 But the alternative is even worse: if you don’t have a schedule forcing you to deliver, then it’s really easy to avoid doing the work at all. The only way to be consistent enough to make a masterpiece is to give yourself permission to create junk along the way.
 
-#### The Schedule is the System
+## The Schedule is the System
 
 The schedule is the system that makes your goals a reality. If you don’t set a schedule for yourself, then your only option is to rely on motivation which is not stable.
 

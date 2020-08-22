@@ -8,9 +8,9 @@
 >
 > Let's talk about that system and how it can help you perform well even when you're not feeling motivated.
 
-#### How You Can Use a Pre–Game Routine to Get Motivated
+## How You Can Use a Pre–Game Routine to Get Motivated
 
-a pre–game routine is that allowed to perform well, regardless of whether  motivated or not.
+a pre–game routine is that allowed to perform well, regardless of whether motivated or not.
 
 While this routine physically warmed me up to play, it also — and perhaps more importantly — put me in the correct mental state to compete at a high level. Even if I wasn’t feeling up for the game at the beginning, by the time I finished my pre–game routine, I was in “game mode.”
 
@@ -24,7 +24,7 @@ But they use their pre–game routines to pull them into the right mental state,
 
 \_\_Here’s how to do it…
 
-#### 3 Steps For Developing Your Routine
+## 3 Steps For Developing Your Routine
 
 **Step 1: A good pre–game routine starts by being so easy that you can’t say no to it. You shouldn’t need motivation to start your pre–game routine.**
 
@@ -60,89 +60,17 @@ If you remember the article on the 3 R’s of Habit Change, then you may realize
 
 This is important because when you don't feel motivated, it's often too much work to figure out what you should do next. When faced with another decision, you will often decide to just quit. However, the pre–game routine solves that problem because you know exactly what to do next. There's no debating or decision making. You just follow the pattern.
 
-#### How to Get Motivated: Make Excellence a Routine
+## How to Get Motivated: Make Excellence a Routine
 
 If you’ve taught yourself to believe certain limitations, then you can also teach yourself to break through them.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 The patterns that you repeat on a daily basis will eventually form the identity that you believe in and the actions that you take. You can transform your identity and become the type of person who doesn’t need motivation to perform well.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- why it’s so critical to do your pre–game routine every time, not just when you’re struggling with a lack of motivation.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+why it’s so critical to do your pre–game routine every time, not just when you’re struggling with a lack of motivation.
 
 These small behaviors reinforce your good habits and the feelings that come with them. Pretty soon, your pre–game routine will not only be a trigger that kickstarts your habit, but also a reminder of what you’re working towards and the type of person you are becoming.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 If you only work when you feel motivated, then you’ll never be consistent enough to become a pro
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 But if you build small routines and patterns that help you overcome the daily battles, then you’ll continue the slow march towards greatness even when it gets tough.
-
-
 

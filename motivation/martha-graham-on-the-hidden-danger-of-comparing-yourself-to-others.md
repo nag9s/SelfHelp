@@ -2,7 +2,7 @@
 
 > It is not your business to determine how good it is nor how valuable nor how it compares with other expressions. It is your business to keep it yours clearly and directly, to keep the channel open.
 
-#### The Uselessness of Judging Yourself
+## The Uselessness of Judging Yourself
 
 “I thought this was a good article. Why don't people seem to enjoy it?” Or, I'll feel like I wrote something average only to see it become the most popular post of the month.
 
@@ -18,7 +18,7 @@ To quote Pema Chodron, the Buddhist teacher, your job is to “come as you are.�
 
 every artist will judge their work. The key is to not let your self-judgment keep you from doing your thing. Professionals produce, even when it isn't easy.
 
-#### Keep Your Eyes on Your Own Paper
+## Keep Your Eyes on Your Own Paper
 
 It doesn't make a difference what the person next to you writes down for his answer. This is your race to run.
 

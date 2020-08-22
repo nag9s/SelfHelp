@@ -1,3 +1,5 @@
+# The 4 Golden Keys To Success
+
 ## \#1 - WILL
 
 NO, this is not what you think I mean! And it's also NOT willpower that I mean
@@ -32,7 +34,7 @@ If your top goals dont trigger your emotions in this way. Take time to think abo
 
 If you failed the test, or even if you didn't I have an instant way for you to get closer to your goals:
 
-##### Write a GOAL-LIST!
+#### Write a GOAL-LIST!
 
 -Open an excel document
 
@@ -64,7 +66,7 @@ Its not only helping you to archieve your goals, but also to actually think abou
 
 Well, lets be fair... I know what your thinking, you can't affect how much opportunities you are getting. So basically this is not the right thing...
 
-#### \#2 - REALIZE Opportunities!
+### \#2 - REALIZE Opportunities!
 
 This is HUGE!
 
@@ -130,11 +132,11 @@ And then...
 
 LIKE SERIOUSLY, people in this world can't even decide what they want to EAT!!!
 
-###### YOU NEED TO START MAKING DECISIONS FOR YOUR OWN.
+**YOU NEED TO START MAKING DECISIONS FOR YOUR OWN.**
 
-###### Train it!!! See your opportunity... and DECIDE WHAT TO DO.
+**Train it!!! See your opportunity... and DECIDE WHAT TO DO.**
 
-###### Think about it well. BUT DECIDE RIGHT AFTER THAT.
+**Think about it well. BUT DECIDE RIGHT AFTER THAT.**
 
 And please, PLEASE! dont let anyone change your mind just because of...
 
@@ -144,15 +146,11 @@ And please, PLEASE! dont let anyone change your mind just because of...
 
 If you see a chance it working, do it! And stop searching and searching but never starting even if you see something that could work!
 
-
-
 ## \#4 - BE CONSEQUENT!
 
 The last step... And just as important...
 
 If you make a decision, DO IT!
-
-
 
 So many people fail at this aswell. They write down their goals... see their opportunities... make the decision to tomorrow do - enter your task here-, and then the next day they're too exhausted... too much stress ... not enough sleep... are afraid of failing... are afraid of things not going as fast as they need them to, to be able pay their bills...
 
@@ -160,25 +158,17 @@ So they decide to make their new decision and do it tomorrow! \(See the irony?\)
 
 And tomorrow they decide to change the approach to something else... that they will start tomorrow.
 
-
-
 GENERAL RULE: What you dont do today, you wont do tomorrow. And you know it yourself slothie.
-
-
 
 This is a hard thing sometimes. But the good thing is you can train it.
 
 Being consequent is a fairy easy task. Most of the times its just this split second of a moment that makes you decide.
-
-
 
 Example:
 
 -Throw the pen in my drawer
 
 -Lay it down smoothly so it looks tidy
-
-
 
 The effort is factually seen nearly identical. But your decide to throw it.
 
@@ -188,19 +178,11 @@ But learn to use these moments for you! Train your consequenzy! Beat your brain 
 
 You will get used to beating it. And to finally do all the things you decide to do!
 
-
-
 Combine all the 4 keys together... and archieve whatever you want.
-
-
 
 When you know what you REALLY want, see your opportunities, make the decision to use them in that moment and actually DO IT!...
 
-
-
 You are unstoppable.
-
-
 
 Last words:
 
